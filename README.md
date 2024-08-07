@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @MaxiNCh
-- 📫 How to reach me: send me a message in telegram @MaxiNCh
+- 📫 How to reach me: send me a message in telegram @MaximNCh
